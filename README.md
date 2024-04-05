@@ -2,6 +2,7 @@
 - 👀 I’m interested in programing 
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on
-- 📫 How to reach me --
+- 📫 How to reach me ---
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i'm just Erick
+- ⚡ Fun fact: i'm just Erick (your friend)
+- 🎵 I love Queen
