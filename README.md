@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ---
 - 📫 How to reach me ---
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i'm just Erick (your friend)
+- ⚡ Fun fact: i'm just Erick
 - 🎵 I love Queen
